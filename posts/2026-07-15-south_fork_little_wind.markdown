@@ -242,7 +242,9 @@ quality of rapids. I think even the portages were kind of nice.
 # Bonus
 
 We had a couple of days left, so we ran Crandall Creek and Sunlight Creek up
-near the Clark Fork. A good, manky ending to the trip.
+near the Clark Fork. A good, manky ending to the trip. For flows we had ~215 CFS
+on the first day, and ~200 on the second. I agree with Nathan: 300 would be
+perfect.
 
 Final Boat Damage Tally:
 
