@@ -10,6 +10,9 @@ Quick shout out to [Sockdolager Equipment](https://sockdolagerequipment.com/)
 for providing a pack, pogies and my personal favorite, the [tri-tip inflation
 adapter.](https://sockdolagerequipment.com/products/tri-tip-pack-a-pump-adapter)
 
+If video is more your style, both [Andrew](https://youtu.be/ElDzNb0g7fw) and
+[Landon](https://www.youtube.com/watch?v=V3GtE4ALQiA) have nice edits.
+
 ## Background
 
 [Landon](https://www.onland.us/) texted me back in April looking to put a trip together- a few ideas were
