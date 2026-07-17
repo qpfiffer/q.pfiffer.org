@@ -16,7 +16,7 @@ adapter.](https://sockdolagerequipment.com/products/tri-tip-pack-a-pump-adapter)
 thrown around, but he was looking to shred some gnar and I liked the stoke. We
 looped Andrew in and eventually settled on trying to get into the Wind River
 range. Like any good trip it was a fast and loose operation from the get-go,
-with things changing right up until go-time. With flows aligning week-of, we
+with things changing right up until day-of. With flows aligning, we
 decided to do it.
 
 The SF L-dub is an obscure run overshadowed by the shorter, punchier North Fork
@@ -31,7 +31,7 @@ episode with Nathan Werner were all we really had to go on. Nathan called it one
 of the best rivers he'd ever paddled, and it sounded less messed up than the NF.
 I was very, very intrigued.
 
-Andrew drove to my house on Thursday, we had a manky surf session at Brennan's,
+Andrew drove to my house on Thursday, we had a low-water surf session at Brennan's Wave,
 and we were off at 6AM in the morning. Kayaks, packrafts and paddling junk everywhere.
 
 # Day 0
@@ -45,8 +45,11 @@ of two people, two boats and a cargo box, but brought us venerably to our
 destination.
 
 Around 5PM we made it to our rendezvous spot with Landon, did some frantic
-last-minute packing and headed up to our start point, Moccasin Lake. I'd either
-totally ignored or misbelieved the fact that we were doing group meals, so I
+last-minute packing and headed up to our start point, Moccasin Lake. There was
+some debate about doing the mission in one night or two, and eventually we
+settled on two. This turned out to be a good idea.
+
+I'd either totally ignored or misbelieved the fact that we were doing group meals, so I
 doled out some extra freeze-dried meals I'd brought to make up for it. Luckily
 everyone was a good sport.
 
@@ -69,7 +72,7 @@ Electrolytes helped too and I felt great by morning.
 
 # Day 1
 
-We all got up early without setting any alarms, packed, got ready and headed out. I was
+We all woke up early without setting any alarms, packed, got ready and headed out. I was
 the only one who heated anything up (coffee). Landon and Andrew are hardcore,
 just cold oatmeal and fruit.
 
@@ -130,15 +133,15 @@ the river. I've had [much worse before.](/posts/2025-04-08-Tin_Cup_Creek.html)
 *Putting back in after portaging a bad one*
 
 After the first gorge we counted two punctures, and Andrew had ripped his spray
-deck. We licked our wounds in the shade and Andrew sewed up his boat,
+deck. We licked our wounds in the shade and he sewed up his boat,
 baseball stitch style, with some help from Landon's repair kit.
 
 <img loading="lazy" src="/static/img/sflw/day_1_7.jpg"></img>
 *Fresh laces*
 
 We reached the amazingly named "This Ain't Seaworld", which is a two-part drop:
-First with a slide into 20 or so feet of vert into a pool, which has a sieve on
-the right and lots of foam, and then another 15 or so feet into another pool. We
+First with a slide into 20 or so feet of vert into a pool, which has an undercut
+rock on the right and lots of foam, and then another 15 or so feet into another pool. We
 elected to walk it, despite Andrew wanting to run the second half.
 
 We put back on, and at this point I was starting to feel pretty beat. The
@@ -151,14 +154,14 @@ just hiked down, but Andrew and Landon ran the slide.
 Another big portage put us pretty high up and took a lot longer.
 
 <img loading="lazy" src="/static/img/sflw/day_1_8.jpg"></img>
-*High up in the Wind River range, no water in sight*
+*Portaging high up in the Wind River range, no water in sight*
 
 Finally we reached river level, ran a few more drops that would have been
-absolute gems on any Montana river, and reached a long meadow that landed just
+absolute gems on any Montana river, and reached a long meadow that Landon had just
 called the "Chill Meadow" on the map. It was about a mile long, and we started
 looking for camp.
 
-We paddled, looked for good camp spots and saw two big bull elk roll through. We
+We drifted, looked for good spots and saw two big bull elk roll through. We
 stopped at one spot that had a tree, river access and enough space for us to all
 put up tents. Landon crisped up more pepperoni, Andrew put on the Tyvek suit and
 we ate a ton before passing out around dark. It had taken us all day to cover
@@ -168,7 +171,81 @@ weird ditch, with my feet higher than my head.
 <img loading="lazy" src="/static/img/sflw/day_1_9.jpg"></img>
 *Dinner fiends*
 
+# Day 2
+
+We slept in a little longer than the day before and I actually had hot oatmeal in the morning. We
+only had three miles or so left of the section we planned to do, so we weren't
+eager to move as fast. We returned to floating down the gentle meadow in the
+sun.
+
+Much like the day before we had a couple of warm-up rapids, then the entire
+river dropped into a beautiful, multi-tiered cascade: Entirely good to go. We'd
+been looking for this one since the podcast and it was pretty obvious when we
+saw it.
+
+<img loading="lazy" src="/static/img/sflw/day_2_1.jpg"></img>
+*Landon drops into the top slide*
+
+<img loading="lazy" src="/static/img/sflw/day_2_2.jpg"></img>
+*Andrew entering the final slide*
+
+<img loading="lazy" src="/static/img/sflw/day_2_3.jpg"></img>
+*Me, heading into the final slide. Photo cr. Landon*
+
+We were pretty fired up after that. The next rapid was what Nathan called a
+"Whale-dome boof" or something like that: We elected to just run the second
+half, since there was some concerning wood in the crack of doom on the left. My
+line wasn't great, dropping me onto the rock at the bottom, luckily the
+packraft absorbed all the impact and it was like sitting down agressively on an
+inflatable chair.
+
+We had a few more boofs, slides, easy portages around choked in mini
+gorges, and even an eventful swim where Andrew tried to freewheel a small ledge.
+After livebaiting his boat, he hiked up and ran it clean. There were some really good
+class IV rapids in this section.
+
+Finally arrived out what would end up being our last big rapid. It was a walk
+from me immediately, but Andrew was psyched. He ran it clean but didn't
+sell me on the line. Landon was determined to run it as well, but one of his
+floor baffles blew up. He walked it too.
+
+<img loading="lazy" src="/static/img/sflw/day_2_4.jpg"></img>
+*Andrew about to hit the meat*
+
+We didn't go too much farther, the rapids after that were pretty bad (with wood) after a big
+scout so we decided to start our hike. We all went up to a small saddle on river
+left and slowly packed our bags in the sun. The wind kept us cool for a little
+while, but I dropped down and grabbed us all some water, filling a small water
+bag.
+
+<img loading="lazy" src="/static/img/sflw/day_2_5.jpg"></img>
+*Packing up on the saddle*
+
+We drank, put everything away and used the rest of the waterbag to drench
+ourselves for a long hike out.
+
+<img loading="lazy" src="/static/img/sflw/day_2_6.jpg"></img>
+*Andrew and Landon diverging amid some deadfall*
+
+There was a lot of deadfall, some lighter bushwhacking, and a lot of trudging
+uphill with heavy packs. I was always at the rear. We killed the rest of our
+food, and after four hours, made it back to the car. We stopped a few times
+(mostly I think so I could catch up) and ate all that we had left.
+
+We jumped in the lake, ate everything not nailed down, and declared it a
+successful mission. I give this river a 9/10, for the outstanding beauty and
+quality of rapids. I think even the portages were kind of nice.
+
 # Bonus
+
+We had a couple of days left, so we ran Crandall Creek and Sunlight Creek up
+near the Clark Fork. A good, manky ending to the trip.
+
+Final Boat Damage Tally:
+
+* Two Punctures
+* One stitched + taped spray deck
+* One blown floor baffle
 
 <img loading="lazy" src="/static/img/sflw/end_spot.jpg"></img>
 *The crew at the confluence of Crandall Creek and the Clark Fork. The box!*
