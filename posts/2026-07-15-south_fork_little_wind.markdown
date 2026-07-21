@@ -217,7 +217,7 @@ floor baffles blew up. He walked it too.
 
 We didn't go too much farther, the rapids after that were pretty bad (with wood) after a big
 scout so we decided to start our hike. We all went up to a small saddle on river
-left and slowly packed our bags in the sun. The wind kept us cool for a little
+right and slowly packed our bags in the sun. The wind kept us cool for a little
 while, but I dropped down and grabbed us all some water, filling a small water
 bag.
 
